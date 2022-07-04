@@ -6,7 +6,7 @@ permalink: /cvkefir/
 
 Павел, 23 года, Санк-Петербург  
 telegram: [@mrbg717](https://t.me/mrbg717)  
-+7 995 236-62-01  
++7 995 235-62-01  
 bpva@protonmail.com
 
 # Навыки
